@@ -10,7 +10,7 @@
 
 💡 Looking to collaborate
 
-	• If you’ve got a cool project in blockchain or cybersecurity, let’s make some tech magic happen!
+	If you’ve got a cool project in blockchain or cybersecurity, let’s make some tech magic happen!
 
 🍳 Fun fact
 
